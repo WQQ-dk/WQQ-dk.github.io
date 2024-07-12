@@ -1,0 +1,2 @@
+- [Acronis True Image](https://www.alipan.com/s/F3S51xgKhqr) - 备份工具，备份功能多样、简单快速！提取码: q78r
+- [Bandicam](https://wqqwdk.lanzn.com/iOvDI2486ggd) - 录屏工具，轻量简洁打开即用！提取码：sanzi
